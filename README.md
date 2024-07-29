@@ -2,5 +2,5 @@
 
 - 😅 Open To Work (Data Analyst)...
 - ⚡ Especialização em Cicência De Dados em Andamento (Escola DNC)...
-- 😄 Pronouns: Ele // Dele
+- 😄 Pronouns: Ele / Dele
 
